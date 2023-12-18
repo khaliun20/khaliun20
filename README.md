@@ -7,7 +7,7 @@
 - 👩🏻‍💼 In my previous professional life, I used to be a business & financial analyst
 - ⚽️ I'm a huge fan of soccer! You will find me rewatching the world cup and current PL matches
 - 🖼 I love looking at beautiful paintings
-- ♥️ People I have been obsessed with: John Nash, Freddie Mercury, Oprah Winfrey, The Dalai Lama, and now Messi! 
+- ♥️ People I have been obsessed with: John Nash, Freddie Mercury, Randy Pausch, Oprah Winfrey, The Dalai Lama, and now Messi! 
 - ⚡ Fun fact: I have met Oprah Winfrey and have her signature framed!
 - 📫 How to reach me: kmunkhuu@gmail.com
 
