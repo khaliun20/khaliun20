@@ -2,7 +2,7 @@
 
 - 📚 I'm a grad student at Duke University. I study Electrical and Computer Engineering (May 2024 grad) 
 - 🔭 I’m currently looking for full time sofware engineering jobs
-- 🌱 I’m currently learning parallel programming and cloud computing
+- 🌱 I’m currently studying for the AWS Certification
 - 👩‍🏫 I love teaching and coaching. In college, I taught English online and gathered 100K followers
 - 👩🏻‍💼 In my previous professional life, I used to be a business & financial analyst
 - ⚽️ I'm a huge fan of soccer! You will find me rewatching the world cup and current PL matches
